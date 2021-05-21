@@ -1,4 +1,4 @@
-# Recipe
+# Recipe:
 
 ## Directions :
 
