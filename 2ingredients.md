@@ -11,7 +11,7 @@
 1 Carrot, grated
 1/4 teaspoon Turmeric Powder
 
-###### 1 teaspoon Ginger-Green Chilli Paste,                       (optional)
+###### 1 teaspoon Ginger-Green Chilli Paste                      (optional)
 
 1/2 teaspoon Baking Soda (soda bicarbonate)
 1 teaspoon lemon Juice
